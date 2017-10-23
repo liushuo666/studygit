@@ -1,3 +1,4 @@
  you are a good man !
- but we can't together!
+ but can't together!
  so you just go !
+ how faraway you go how far!
